@@ -1,1 +1,1 @@
-hmm ciekawe jak to dzia³a
+hmm ciekawe jak to dzia³a, a ciekawe co sie teraz stanie
